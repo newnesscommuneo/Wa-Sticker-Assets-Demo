@@ -1,0 +1,1 @@
+# Wa-Sticker-Assets-Demo
